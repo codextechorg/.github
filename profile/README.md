@@ -31,7 +31,7 @@ Interested in joining our team? We're always on the lookout for talented individ
 
 Stay updated with our latest news, events, and tech insights:
 
-- Follow us on [X](https://x.com/codexegofficial)
-- Connect with us on [LinkedIn](https://www.linkedin.com/company/codexegofficial)
+- Follow us on [X](https://x.com/codextechorg)
+- Connect with us on [LinkedIn](https://www.linkedin.com/company/codextechorg)
 
 Let's build the future together! 🌟
